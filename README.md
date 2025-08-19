@@ -1,1 +1,1 @@
-# Cibernetica
+# Cibernética
